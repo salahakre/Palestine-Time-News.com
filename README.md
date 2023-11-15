@@ -1,1 +1,1 @@
-# Palestine-Time-News.github.io
+# Palestine-Time-News.com
